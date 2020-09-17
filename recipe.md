@@ -1,14 +1,4 @@
-Red velvet cake is much more than vanilla
- cake tinted red. This recipe produces the
-  best red velvet cake with superior buttery,
-   vanilla, and cocoa flavors, as well as a 
-   delicious tang from buttermilk.
-    My trick is to whip the egg whites, 
-    which guarantees a smooth velvet crumb.
-    it will be very easy to make.
-
-
-    Preheat oven to 350°F (177°C). Grease two 9-inch cake pans, 
+Preheat oven to 350°F (177°C). Grease two 9-inch cake pans, 
 line with parchment paper, then grease the parchment paper.
  Parchment paper helps the cakes seamlessly release from the pans.
 Make the cake: Whisk the flour, baking soda, cocoa powder, and
@@ -44,23 +34,3 @@ Refrigerate cake for at least 30-60 minutes before slicing. This helps
  the cake hold its shape when cutting.
 Cover leftover cake tightly and store in the refrigerator for 5 days. Frosted cake or unfrosted cake layers can be frozen up to 2-3 months. Thaw overnight in the refrigerator and bring to room temperature
  before decorating/serving.
-
-
-3 cups (345g) cake flour (spoon & leveled)
-1 teaspoon baking soda
-2 Tablespoons (10g) unsweetened natural cocoa powder
-1/2 teaspoon salt
-1/2 cup (115g) unsalted butter, softened to room temperature
-2 cups (400g) granulated sugar
-1 cup (240ml) canola or vegetable oil
-4 large eggs, room temperature and separated
-1 Tablespoon pure vanilla extract
-1 teaspoon distilled white vinegar
-liquid or gel red food coloring
-1 cup (240ml) buttermilk, at room temperature
-Cream Cheese Frosting
-16 ounces (450g) full-fat block cream cheese, softened to room temperature
-3/4 cup (170g) unsalted butter, softened to room temperature
-5 and 1/2 cups (660g) confectioners’ sugar
-1 and 1/2 teaspoons pure vanilla extract
-pinch of salt, to taste
